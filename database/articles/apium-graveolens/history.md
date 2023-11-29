@@ -1,0 +1,5 @@
+Celery, Apium graveolens, has a long history of traditional use in medicine. Its roots have been used for centuries to treat various ailments, including digestive issues and skin conditions. Celery was also believed to promote overall health and vitality, making it a popular choice among ancient healers.
+
+In divination, celery has been used for thousands of years to predict the future. In ancient times, it was often tied in knots and then buried underground. The position of the celery after a few days would be used to interpret its meaning. Some believed that the position of the celery could reveal information about one's destiny or the future of their loved ones.
+
+Celery has also been the subject of many legends throughout history. In ancient Greece, it was said that Alexander the Great ate celery every day as a way to maintain his strength and endurance during battle. According to some legends, the first use of celery in cooking dates back to the time of Cleopatra VII, who used it to flavor her dishes. Despite its many uses, however, celery remains a humble vegetable that is often overlooked for its true potential.
